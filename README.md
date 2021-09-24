@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @HACKEROPARISE
 - 👀 I’m interested in HACKING
 - 🌱 I’m currently learning HACKING AND DISCORD HACKING TOO
-- 💞️ I’m looking to collaborate on SORRY I AM NOT LOOKING
+- 💞️ I’m looking to collaborate on DISCORD
 - 📫 How to reach me MAIL ME priyangshudutta8932@gmail.com
 
 <!---
